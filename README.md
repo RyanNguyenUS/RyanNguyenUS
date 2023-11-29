@@ -1,6 +1,7 @@
 
 Hello guys,
 I am a new grad of Computer Scientists at LoneStar.
+
 I am looking for an intern or full-time Job in Houston.
 
 You can contact me at Ryannguyen2301@gmail.com
